@@ -1,0 +1,1 @@
+Cerita pendek dan cerita dewasa
